@@ -1,0 +1,2 @@
+# Bendahara-Yayasan
+SETORAN DANA BOS GURU KE YPWP PANGKEP
